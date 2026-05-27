@@ -65,3 +65,6 @@ https://github.com/walidcumo08-create
 #سنبلة
 #وليد_جمو
 #الوعي_الإنساني
+<img width="736" height="1313" alt="1000236952" src="https://github.com/user-attachments/assets/3152227e-465c-4e48-9ae7-a84b8d1949e3" />
+<img width="1024" height="1536" alt="1000237455" src="https://github.com/user-attachments/assets/84d339b7-9913-4d33-9c2c-62403e89361d" />
+<img width="768" height="1376" alt="1000237459" src="https://github.com/user-attachments/assets/9e97b81e-5fb3-4470-8ee1-53d206fee10f" />
